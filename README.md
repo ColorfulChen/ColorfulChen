@@ -1,6 +1,6 @@
 # Hi there! 👋 I'm ColorfulChen 🌈
 
-Welcome to my GitHub profile! Here's a little about me:
+Welcome to my GitHub profile! I am a student who major in Cyber Security in BUPT! Here's a little about me:
 
 ---
 
